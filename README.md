@@ -1,4 +1,6 @@
 ## Galang Ristiyanto
-seorang pria tangguh dan tampan
-kelas
-XII-2
+Nama Lengkap: Galang Ristiyanto
+
+Nama Panggilan: Galang
+
+Kelas: XII-2
