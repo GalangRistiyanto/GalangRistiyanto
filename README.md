@@ -1,4 +1,4 @@
 ## Galang Ristiyanto
 seorang pria tangguh dan tampan
-Galang Ristiyanto
+kelas
 XII-2
